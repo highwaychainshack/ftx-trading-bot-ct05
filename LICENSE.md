@@ -1,4 +1,4 @@
-# 
+# Get the ultimate ftx trading bot with instant ftx trading bot Executor | stop-loss + webhook-support. Featuring stop-loss and webhook-support, it's the best choice for automated
 
 
 
